@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @P0l13dr0
-- 👀 I’m just a curious and beginner
 - 🌱 I keep learning. Always. 
